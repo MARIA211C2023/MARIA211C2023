@@ -9,4 +9,4 @@ Meu nome é Maria Eduaarda🖤
  #Email de contato📧
  maria.barbosa14@escola.pr.gov.br
 
-![](https://cdn.dicionariopopular.com/imagens/nazareconfusamatematica.gif)
+![](https://th.bing.com/th/id/R.be3ee269c07ea21f25f97c68f81c1383?rik=g1OBV%2b5ogtAOaw&pid=ImgRaw&r=0)
