@@ -1,16 +1,15 @@
-### Hi there 👋
+### SEJA BEM VINDO(A) AO MEU PERFIL😝
 
-<!--
-**MARIA211C2023/MARIA211C2023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Maria Eduaarda🖤
 
-Here are some ideas to get you started:
+- Estou estudando na Alura📚
+- Estou aprendendo nas aulas de pensamento computacional💻
+- Estou ultilizando esse espaço para meus projetos📓
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ #Email de contato📧
+ maria.barbosa14@escola.pr.gov.br
+
+
+
+
+ ![](https://media.tenor.com/F1n0r71gykgAAAAd/monica-monica-ghellar.gif)
