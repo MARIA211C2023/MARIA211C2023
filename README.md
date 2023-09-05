@@ -9,7 +9,4 @@ Meu nome é Maria Eduaarda🖤
  #Email de contato📧
  maria.barbosa14@escola.pr.gov.br
 
-
-
-
- ![](https://media.tenor.com/F1n0r71gykgAAAAd/monica-monica-ghellar.gif)
+![](https://media.tenor.com/F1n0r71gykgAAAAd/monica-monica-ghellar.gif)
